@@ -4,7 +4,7 @@ Join the sheep battle in [Crazy Cattle 3D](https://crazycattle3dgame.github.io/)
 
 **What is Crazy Cattle 3D**
 
-Crazy Cattle 3D is a physics-based battle royale game created by Ann (@4nn4t4t on X). It first appeared on itch.io and quickly gained the attention of gamers from all over the world. Soon it has become a phenomenon while it was released just recently on April 12, 2025.
+**Crazy Cattle 3D** is a physics-based battle royale game created by Ann (@4nn4t4t on X). It first appeared on itch.io and quickly gained the attention of gamers from all over the world. Soon it has become a phenomenon while it was released just recently on April 12, 2025.
 Now you can enjoy the game online for free, and unblocked at https://crazycattle3dgame.github.io/.
 
 On TikTok, you can find many shorts and reels talking about this game with the tag #crazycattle3d #crazy #cattle #3d. The game is rated as "game of the year", "mainstream" on TikTok and X! 
